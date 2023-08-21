@@ -1,1 +1,0 @@
-# jeroguzman.github.io
